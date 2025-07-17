@@ -4,6 +4,8 @@ Making money from reselling has become popular over the last few years. People a
 
 I've been testing House of Resell for three months now. Here's my honest review about whether this UK reselling group is worth your money.
 
+**So, what are you waiting for? Just get started.** [Check out the company's official website](https://prml.ink/house-of-resell) and see if House of Resell is right for you.
+
 ## What Is House of Resell?
 
 ### Overview of the Platform
